@@ -1,5 +1,5 @@
 # 💫 About Me:
-im prince yadav<br>btech 1st year student persuing cse aiml<br>
+I'M PRINCE YADAV<br>
 
 
 ## 🌐 Socials:
